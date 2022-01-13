@@ -1,1 +1,1 @@
-Peter is walking home from school and then encounters Tony Stark waiting at the front of his house.
+Peter is walking home from school and then encounters Tony Stark waiting at the front of his house. He tells Peter that he wants him to joing the Avengers. Peter is happy when he hears this but denies after thinking about it for some time.
