@@ -1,0 +1,1 @@
+Peter is walking home from school and then encounters Tony Stark waiting at the front of his house.
